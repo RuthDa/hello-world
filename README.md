@@ -1,3 +1,3 @@
 # hello-world
 
-I do like strawberries
+Rihanna is amazing
